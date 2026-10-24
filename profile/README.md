@@ -17,7 +17,7 @@ Three student teams, one club:
 ## Find us
 
 - Website: [teamgsracers.in](https://www.teamgsracers.in)
-- Instagram: [@team_gsracers](https://www.instagram.com/team_gsracers)
+- Instagram: [@team_gsracers](https://www.instagram.com/team_gsracers) · Formula: [@team_gsracers_fs](https://www.instagram.com/team_gsracers_fs)
 - LinkedIn: [Team GS Racers](https://www.linkedin.com/company/gsracers/)
 - YouTube: [GS Racers](https://youtube.com/@teamgsracerssgsits6635)
 - Email: [teamgsracers.org@gmail.com](mailto:teamgsracers.org@gmail.com)
